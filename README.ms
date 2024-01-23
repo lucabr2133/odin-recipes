@@ -1,0 +1,1 @@
+el proyecto actual se trata de una lista  habre demostrado todo lo que aprendi y bueno eso es todo
